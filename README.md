@@ -1,1 +1,1 @@
-# Data-and-Story-Telling-Case-Study-Life-is-Uncertain
+# Data-and-Story-Telling-Case-Study-Uncertainities-Of-Life
